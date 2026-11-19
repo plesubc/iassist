@@ -62,7 +62,7 @@ Light morning break, full lunch, and an afternoon break will be provided to all 
 
 ### How do I get around in Vancouver?
 
-More local information coming soon!
+Visit the [Maps and Local Information](https://iassistdata.org/conferences/iassist2027/maps-and-local-information/) page.
 
 ### When will the registration desk be available on site to pick up my badge?
 
